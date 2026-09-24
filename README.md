@@ -1,1 +1,1 @@
-# amanah-sakuracompany-profile
+# amanah-sakura-company-profile
